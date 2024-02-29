@@ -1,1 +1,0 @@
-# :tada: Seja bem vindo!
